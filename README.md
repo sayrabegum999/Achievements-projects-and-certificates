@@ -1,2 +1,7 @@
-# Achievements-projects-and-certificates
-A collection of my certifications, academic &amp; personal projects, and extracurricular accomplishments.
+# My Academic & Professional Portfolio
+Education
+Work Experience
+University Project
+Compititions & Achievements
+Volunteering
+Leadership & Student Engagement
